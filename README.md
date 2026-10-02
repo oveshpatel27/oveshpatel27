@@ -47,4 +47,4 @@ Bachelor of Computer Applications (BCA), Sri Satya Sai University of Technology 
 ### Contact
 
 - Email: patelovesh64@gmail.com
-- LinkedIn: https://www.linkedin.com/in/ovesh-patel-7a6b60246
+- LinkedIn: https://www.linkedin.com/in/mohammadovesh-patel-7a6b60246
